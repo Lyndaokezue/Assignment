@@ -1,0 +1,2 @@
+This folder contains a little detail and information about me, this is where you get to know a little about me as I move foward and evolve the Tech world.
+This folder also contains a Alt school form and all you need to know about it.
